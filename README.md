@@ -6,3 +6,7 @@
 ## Extra Curricular:
 *I am a sports enthusiast and spends most of my free time in watching and playing Football.
 
+
+![image](https://github.com/user-attachments/assets/22dd210b-54a1-4f42-84b5-a2dbe102dcb2)
+
+
